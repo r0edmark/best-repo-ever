@@ -1,3 +1,3 @@
 # best-repo-ever
 
-# coo things coming soon
+# cool things coming soon
